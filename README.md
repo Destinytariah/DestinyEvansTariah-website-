@@ -38,4 +38,4 @@ Credits
 
 Contact
 
-For support or feedback, please reach out to destinytariah@gmail.com or visit destinyevanstariahservices.com.
+For support or feedback, please reach out to destinytariah@gmail.com
